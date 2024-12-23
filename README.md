@@ -1,2 +1,0 @@
-# NAVIDAD
-# navidad
